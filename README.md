@@ -2,7 +2,6 @@
 # 月色视频 (国际镜像)
 :sunglasses::sunglasses:地址发布:sunglasses::sunglasses:
 ==
-:heart: :point_right: 【本站安卓APP下载地址】 ：https://static.downsofter.com/app/yuese.apk 网页被墙打不开APP可以开
 ------
 :heart: :point_right: 【地址一】：https://yuese.3bmtpuajzt.xyz
 ------
@@ -17,7 +16,7 @@
 # 月色视频 (轻量备用版)
 :sunglasses::sunglasses:地址发布:sunglasses::sunglasses:
 ==
-:heart: :point_right: 【本站安卓APP下载地址】 ：https://static.downsofter.com/app/yuese.apk 网页被墙打不开APP可以开
+
 ------
 :heart: :point_right: 【地址一】：https://uk9us-5zstr611g.98tzh-nrmc.xyz
 ------
