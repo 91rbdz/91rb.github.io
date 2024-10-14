@@ -3,31 +3,16 @@
 :sunglasses::sunglasses:地址发布:sunglasses::sunglasses:
 ==
 ------
-:heart: :point_right: 【地址一】：https://yuese.3bmtpuajzt.xyz
+:heart: :point_right: 【地址一】：https://yuese.cvpaw2wugv.xyz
 ------
-:heart: :point_right: 【地址二】：https://yuese.tvdr4fcsn4.xyz
+:heart: :point_right: 【地址二】：https://yuese.eftxfz2kkq.xyz
 ------
-:heart: :point_right: 【地址三】 https://yuese.fkt1jfhpm5.xyz
+:heart: :point_right: 【地址三】 https://yuese.ba69jw2mg7.xyz
 -----
-:heart: :point_right: 【地址四】 ：https://yuese.y77wj8htjv.xyz
+:heart: :point_right: 【地址四】 ：https://yuese.qsas28b6v2.xyz
 ------
-:heart: :point_right: 【地址五】 ：https://yuese.pk8va3m6hc.xyz
-------
-# 月色视频 (轻量备用版)
-:sunglasses::sunglasses:地址发布:sunglasses::sunglasses:
-==
-
-------
-:heart: :point_right: 【地址一】：https://uk9us-5zstr611g.98tzh-nrmc.xyz
-------
-:heart: :point_right: 【地址二】：https://8xws1-a883df2dw.sqf83-yny2.xyz
-------
-:heart: :point_right: 【地址三】 https://qy2pt4f8phagm-k.8x-y8xgqqu.xyz
------
-:heart: :point_right: 【地址四】 ：https://q7xm9sw-qayzzjv.138-u2akzm.xyz
-------
-:heart: :point_right: 【地址五】 ：https://pu4-q7bx5xcyay2.a7mg4u2-bp.xyz
-------
+:heart: :point_right: 【地址五】 ：https://yuese.88fxvq99ry.xyz
+------------
 :heart: :e-mail: 【邮箱联系方式】 ：yuesedizhi@gmail.com （以上地址无法访问请发送任意内容获取最新地址）
 ------
 :sunglasses:重要提醒:sunglasses:收藏本页面，避免迷路！
